@@ -6,5 +6,5 @@ Cloudy and wet.
 
 ## Tomorrow
 
-Showers all day.
+Rain and more rain.
 
